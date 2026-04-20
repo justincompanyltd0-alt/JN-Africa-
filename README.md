@@ -1,1 +1,1 @@
-# JN-Africa-
+# JN-Africa-Technology 
